@@ -1,2 +1,1 @@
 # NIP-Movie-ticket-management
-https://jqwqdrxx.pegacea.net/prweb/app/nip--movie-ticket--naveens/9s5UaqMnbULkjODbKYQ9giAt5wXbfs2V*/!STANDARD?pzuiactionzzz=CXtycX1iNWMyN2UyNjcyOWYyNjY2YTk3ZDRjMWE3ZjBmNGE0ZDgwYWM0NzkwZmQ3NWY5YmUzY2M4NTQzMGQzOWFjZTUzNzQ0MTlkMDA3NWI1YTY3MTJhNTA5NTM2NDFhMWE2OTE=*
